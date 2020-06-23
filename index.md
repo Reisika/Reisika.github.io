@@ -26,3 +26,5 @@ Zitat aus dem "Spiegel vom 23.07.2017"
 > Howard Stern. Theron war damals 15 Jahre alt und lebte mit ihren Eltern im südafrikanischen
 > Johannesburg. Ihr Vater, Charles Jacobus Theron, war Alkoholiker und gewalttätig. 
 > 1991 erschoss Therons Mutter ihn aus Notwehr. Er hatte gedroht, seine Familie zu töten.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/5/5d/Charlize-theron-IMG_6045.jpg"/>
